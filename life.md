@@ -6,4 +6,4 @@
 - 10/2006 Awarded a black belt in Kick-boxing
 - 05/2012 Cracked [IITJEE](https://en.wikipedia.org/wiki/Joint_Entrance_Examination_%E2%80%93_Advanced)
 - 07/2012-06/2016 Bachelor's degree at IIT Guwahati
-- 10/2012~ Working at Works Applications Co. Ltd., Singapore
+- 10/2016~ Working at Works Applications Co. Ltd., Singapore
